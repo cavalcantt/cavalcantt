@@ -24,7 +24,7 @@
 </div> <br/>
 
 
-🧑‍💻 Estudante de analise e desenvolvimento de sistema se apaixonando por progarmação. 🧑‍💻
+🧑‍💻 Estudante de analise e desenvolvimento de sistema e apaixonando por progarmação. 🧑‍💻
 
 
 
